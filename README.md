@@ -1,1 +1,3 @@
-# 2026-04-KIT-COC-ST-279
+Title: Develop a comprehensive product design framework based on artificial intelligence visual enhancement technology to drive innovation and efficiency
+
+Domain: Artificial intelligence,Visual enchance ment Technology
